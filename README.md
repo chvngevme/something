@@ -8,4 +8,4 @@
 
 ⟢ not really much info in here,, check my rentry 4 more !!!
 
-⟢ [pt info](https://rentry.co/n8ft769b) - [abt me](https://rentry.co/goerdg9i)
+⟢ [pt info](https://rentry.co/n8ft769b) - [abt me](https://rentry.co/goerdg9i) - [draw 4 me](https://yzuwi.straw.page)
